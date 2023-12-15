@@ -44,4 +44,4 @@
 11. **Public Wi-Fi Caution**:
     - Public Wi-Fi is like a busy public park — not all activities are safe there. If you need public Wi-Fi, let's discuss how to stay safe, like avoiding online shopping or banking, to keep your personal information secure.
 
-Remember, we're setting these guidelines to help you navigate the online world with confidence and safety. We always want you to feel you can talk to us about anything you encounter online, no matter what it is. Your freedom and your safety are both important to us.
+Remember, we're setting these guidelines to help you navigate the online world with confidence and safety. We always want you to feel you can talk to us about anything you encounter online, no matter what it is.
